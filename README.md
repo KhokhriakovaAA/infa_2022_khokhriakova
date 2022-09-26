@@ -1,3 +1,2 @@
 # infa_2022_khokhriakova
 test test
-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
